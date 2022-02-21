@@ -3,7 +3,7 @@
 
 - 📫 How to reach me:
   + Email: joselunav97@gmail.com
-  + Twitter/IG/Twitch.tv: @josemlunav
+  + Twitter/IG: @josemlunav
 
 
 
